@@ -1,4 +1,4 @@
-# index.html                                                                                                                                 # Privacy Policy for [app live football]
+                                                                                                                                 # Privacy Policy for [app live football]
 
 **Last updated:** [5/5/2026]
 
